@@ -8,5 +8,6 @@
 
 南大加油！
 
-### CSGO创作
-![QQ图片20210817181936](https://user-images.githubusercontent.com/66114018/130320625-27e33820-912c-4834-9910-1b265606d037.jpg)
+### 网课课表（自用）
+
+![QQ图片20210810114448](https://user-images.githubusercontent.com/66114018/130320859-71e6afa9-1eef-464e-9f8a-c8e1565b357f.jpg)
